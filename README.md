@@ -1,4 +1,4 @@
-haiiii i keep my spacehey html/css profiles here n literally nothing else (well, nothing else yet, for now maybe) 
+haiiii i mostly keep my spacehey html/css profiles here n other shitass html/css i do and absolutely none of it is worth seeing
 
 nothing else to know um um bye ˃ 𖥦 ˂
 
